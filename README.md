@@ -34,4 +34,4 @@ We may update this policy from time to time. If we make significant changes, we 
 If you have any questions about this Privacy Policy, please feel free to contact us at:
 
 - Email: sarzvarzokirov239@gmail.com
-- Address: Uzbekistan
+- Address: Tashkent, Uzbekistan
